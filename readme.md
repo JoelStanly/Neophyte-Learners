@@ -1,6 +1,6 @@
 # Neophyte Learners
 
-##Welcome
+## Welcome
 
 ###### What is Neophyte Learners?
 This is a group where the students who are interested can learn and earn at the same time. This is a public group where we give a coding problem per day. Whomever comes with the solution within the time limit will be awarded some neophyte coins.
