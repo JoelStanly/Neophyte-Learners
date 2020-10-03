@@ -15,7 +15,7 @@ Do not worry, if u don't come up with a solution. You can earn even some partial
 This page is public and anyone can view the contents. But to join and earn,you need to in our whatsapp group. ** *It's Absolutely free* **
 
 ###### Whatsapp link?
-* https://chat.whatsapp.com/FjgtL58BZVR1UML9P65bQS *
+*https://chat.whatsapp.com/FjgtL58BZVR1UML9P65bQS*
 
 ###### Anymore questions or for more info?
 Contact the admin **Joel Stanly**
