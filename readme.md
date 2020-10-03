@@ -17,7 +17,7 @@ This page is public and anyone can view the contents. But to join and earn,you n
 ###### Whatsapp link?
 * https://chat.whatsapp.com/FjgtL58BZVR1UML9P65bQS *
 
-###### Anymore questions?
+###### Anymore questions or for more info?
 Contact the admin **Joel Stanly**
 
 
